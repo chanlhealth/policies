@@ -1,6 +1,6 @@
 # Terms of Use
 
-Last updated: **2016-04-01**
+Last updated: **October 1st, 2019**
 
 Thanks for using Chanl Health’s products and services (“**Services**”).
 
